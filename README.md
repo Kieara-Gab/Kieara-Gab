@@ -21,7 +21,7 @@
 - AI and automation tools for business efficiency
 
 ## 📫 How to reach me  
-- **Email**: [kjones@elevatehealthanalytics.com]   
+- **Email**: kjones@elevatehealthanalytics.com
 - **Website**: [Elevate Health Analytics](https://sites.google.com/elevatehealthanalytics.com/elevate-health/home)  
 - **YouTube**: [The Business Gab](https://www.youtube.com/channel/UC10vYLcoof_MkvhbqLeImsA)  
 
